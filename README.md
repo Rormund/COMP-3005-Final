@@ -1,1 +1,5 @@
-# COMP-3005-Final
+Alexandre Berube
+101054165
+COMP3005 Final
+
+YOUTUBE LINK:
